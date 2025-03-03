@@ -1,7 +1,7 @@
 ### Hi there :wave:
 
 - 👋 Hi, I’m @Anneliechen
-- 🤏 16 Years old
+- 🤏 18 Years old
 - ❤️ Love to learn new stuff
 - 📫 How to reach me: [@annelie](https://discord.gg/323HfHyGW4) on Discord
 
